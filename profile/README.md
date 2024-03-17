@@ -2,6 +2,10 @@
 
 Antevisão Sporting - Boavista: Gansos e águias com destinos de voo bem definidos O Sporting CP pretende fugir à luta pela manutenção, enquanto que o Boavista não pode perder pontos na luta pelo título.
 
+<strong>🔴AO VIVO▶ <a rel="nofollow" href="https://onlinestreamshd.com/pt-soccer/"> SPORTING X BOAVISTA AO VIVO ONLINE </a></strong>
+
+<strong>🔴AO VIVO▶ <a rel="nofollow" href="https://onlinestreamshd.com/pt-soccer/"> SPORTING X BOAVISTA AO VIVO ONLINE </a></strong>
+
 O Sporting recebe este domingo o Boavista na ressaca da eliminação europeia. Após a derrota, Rúben Amorim afirmou que o campeonato é a grande prioridade para os Leões e o próximo adversário será o Boavista, num difícil teste para manter a liderança. A partida tem início às 20h30. Pode seguir as incidências do jogo no site da RTP e ouvir em direto o relato na Antena 1
 
 Na receção desta noite, 20h30, ao Boavista a equipa verde e branca vai procurar, pelo menos, segurar a vantagem na liderança que é de um ponto sobre o Benfica.
